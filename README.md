@@ -1,1 +1,4 @@
 # adoteumartista
+# sitedearrecadaçãoderecursosparaumacompanhiaindependente
+# vaquinhaonlinesemlimitedevalor
+# Visualatrativoedivertido
